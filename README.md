@@ -29,7 +29,7 @@ Some common features of smart air coolers include:
 Why Are French Consumers Embracing Smart Air Coolers?
 
 1. Enhanced Control and Convenience
-2. 
+
 French consumers are increasingly attracted to the convenience and flexibility offered by smart air coolers. The ability to control the cooler remotely via a smartphone app means that users can adjust the settings before even entering the room. Whether they’re coming home after a long day or want to make adjustments while at work, smart air coolers allow French consumers to optimize comfort effortlessly. The voice control feature further enhances this experience, making it easy for users to command their air coolers without lifting a finger.
 
 Moreover, many French consumers appreciate the intelligent features of smart air coolers, such as temperature sensors that automatically adjust the fan speed based on the room's temperature. This ensures that the space remains consistently comfortable without having to manually tweak the settings.
